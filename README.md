@@ -5,7 +5,7 @@ An informally organized group of families that bike. We're looking to do semi-re
 - Save the date: Sunday, March 19th, 2023 - location TBD (Westside)
 
 ## Stay Up To Date
-- [WhatsApp](https://chat.whatsapp.com/FRVX5sYOcyFAZ0B2qwbdzP)
+- [Request to join WhatsApp](https://forms.gle/QVBcPTtziCaEiN8N9)
 - [MailChimp](http://eepurl.com/iiW-iz)
 
 
