@@ -1,4 +1,5 @@
 # LA Families That Bike
+An informally organized group of families that bike. We're looking to do semi-regular park meetups and destination rides as well as more adhoc get togethers.
 
 ## Upcoming Events
 - Save the date: Sunday, March 19th, 2023 - location TBD (Westside)
