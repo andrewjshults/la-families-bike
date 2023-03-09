@@ -2,7 +2,7 @@
 We are families who live in LA and bike with our kids. We meet up, ride together, try out each other's bikes, advocate for safer biking, & more!
 
 ## 🗓️ Upcoming Events 🗓️
-- Save the Date: Westside LA Families Bike Meetup, Sun. 3/19/23, Location TBD, Connect/Ride/Play/Snack
+- [Westside LA Families Bike Meetup](https://www.eventbrite.com/e/la-families-bike-meetup-319-tickets-575198794077) (Sunday, March 19th 2023) - Lindberg Park
 
 ## 📣 Stay In The Know 📣
 - [Request to join our WhatsApp group](https://forms.gle/QVBcPTtziCaEiN8N9)
