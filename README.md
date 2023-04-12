@@ -2,7 +2,7 @@
 We are families who live in LA and bike with our kids. We meet up, ride together, try out each other's bikes, advocate for safer biking, & more!
 
 ## 🗓️ Upcoming Events 🗓️
-- [Westside LA Families Bike Meetup](https://www.eventbrite.com/e/la-families-bike-meetup-319-tickets-575198794077) (Sunday, March 19th 2023) - Lindberg Park
+- [LA Families Bike Meetup](https://www.eventbrite.com/e/la-families-bike-meetup-423-tickets-616242125787) (Sunday, April 23rd 2023) - Lindberg Park
 
 ## 📣 Stay In The Know 📣
 - [Request to join our WhatsApp group](https://forms.gle/QVBcPTtziCaEiN8N9)
@@ -10,7 +10,8 @@ We are families who live in LA and bike with our kids. We meet up, ride together
 
 
 ## 🎉 Past Events 🎉
-- Westside LA Families Bike Meetup (Sunday, January 22nd, 2023) - Syd Kronenthal Park
+- LA Families Bike Meetup (Sunday, March 19th 2023) - Lindberg Park
+- LA Families Bike Meetup (Sunday, January 22nd, 2023) - Syd Kronenthal Park
 
 ## ⭐️ Friends ⭐️
 - [Bike Culver City](http://www.bikeculvercity.org/)
@@ -19,3 +20,4 @@ We are families who live in LA and bike with our kids. We meet up, ride together
 
 ## 🔧 Shops 🔧
 - [The Bike Center](https://thebikecenter.com/) (Culver City & Santa Monica)
+- [Kruse + Company](https://krusebikes.com/) (Pacific Palisades)
