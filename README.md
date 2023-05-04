@@ -2,7 +2,9 @@
 We are families who live in LA and bike with our kids. We meet up, ride together, try out each other's bikes, advocate for safer biking, & more!
 
 ## 🗓️ Upcoming Events 🗓️
-- [LA Families Bike Meetup](https://www.eventbrite.com/e/la-families-bike-meetup-423-tickets-616242125787) (Sunday, April 23rd 2023) - Lindberg Park
+- Mar Vista Farmers Market Tabling (Sunday, May 7th 2023)
+- [LA Families Bike Meetup](https://www.eventbrite.com/e/la-families-bike-meetup-513-tickets-630553280837) (Saturday, May 13rd 2023) - Playground on Bluff Trail Park
+
 
 ## 📣 Stay In The Know 📣
 - [Request to join our WhatsApp group](https://forms.gle/QVBcPTtziCaEiN8N9)
@@ -10,6 +12,7 @@ We are families who live in LA and bike with our kids. We meet up, ride together
 
 
 ## 🎉 Past Events 🎉
+- LA Families Bike Meetup(Sunday, April 23rd 2023) - Lindberg Park
 - LA Families Bike Meetup (Sunday, March 19th 2023) - Lindberg Park
 - LA Families Bike Meetup (Sunday, January 22nd, 2023) - Syd Kronenthal Park
 
