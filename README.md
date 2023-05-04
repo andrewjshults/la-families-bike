@@ -12,7 +12,7 @@ We are families who live in LA and bike with our kids. We meet up, ride together
 
 
 ## 🎉 Past Events 🎉
-- LA Families Bike Meetup(Sunday, April 23rd 2023) - Lindberg Park
+- LA Families Bike Meetup (Sunday, April 23rd 2023) - Lindberg Park
 - LA Families Bike Meetup (Sunday, March 19th 2023) - Lindberg Park
 - LA Families Bike Meetup (Sunday, January 22nd, 2023) - Syd Kronenthal Park
 
